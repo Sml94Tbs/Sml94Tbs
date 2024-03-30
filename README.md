@@ -1,1 +1,2 @@
-### Hi, I'm SML !
+### Hi 🖐️, I'm SML !
+Student in High School Polyvalent of Cachan 🏫
